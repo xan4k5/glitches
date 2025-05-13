@@ -1,1 +1,1 @@
-![Glitches](https://pouch.jumpshare.com/preview/_R79-1860fq2WvtpMrdPumLYP3OpIsoYRTYi7_ABz1t7yCvWuqO_eLGnnPZx9QuxssZzgIrAxYptiKgYLwZFelx1CuWNKuDCyBcDBM9LxAY)
+![Glitches](https://ibb.co/vxKWNRwg)
